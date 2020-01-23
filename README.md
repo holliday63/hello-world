@@ -1,2 +1,2 @@
 # hello-world
-just trying to make it in this crazy coding world
+I'm a video editor, web builder, writer, and pop culture know-it-all.
